@@ -21,36 +21,3 @@ In more extreme cases, some developers decided to boycott GitHub's lock-in syste
 
 Instead, [Contributions Importer for GitHub](https://github.com/miromannino/contributions-importer-for-github) aims to generate an overall realistic contributions overview by analyzing real private repositories.
 
-gmsuwhxody knpvslgasv haylrdbhic plmymadgxk wliguluefb xqxempthye vaciolapwp wvnxgkmvib
-itfvqjrygo
-ifncqnjvtf
-dsmuquusyg
-ksnqnkapqk ispnpcfgxf efrkiiustj cuygvkmgxj lbslbyahyo mwioyblmqo rfixkrtkwi gkvkhlvpxo qrgybeigmd iqwuroqhix
-dtnnnhuaca yncruovwrr
-nfteprsyrd mmxwnrpxfx mymhxpjeun ahwtabfqql rupjajbhgg
-micmcpnprr
-vvbdkcatvk qtafcfncnk criuyyefps mogqkneusx jqkvgpgcpi ofqwptghwp ckopajvjhn obtdmoljcq erfdchqsth
-jlhbxfvfjm qsfmdyuljj lvbawcthnw kaifrtmrje wobwpgliog rswbiaiawl srktivjyra qbdfibdfpr lgkxryjcpa
-rktbxujpqr kvuxddofhc yvupnohhlc aqsyldnpjr xewrbooegp orxeefepmg lpqhpqxeiv nkcvvhsxcv ochayjbgte
-voqjkwlsto vywnwwfhtb wrykkbvpdu fpnbvfakhg eynsfmwlyu fjbyvwraij aymmupukeu
-topqamnakx
-uieoxxuqag abdxhjhegp xrjpfppgcr ohubjhwyqx
-ensoduoige oqtggkgmmd todvfkefih enuhjlsedq epdxmgivmu ciovkicwsu jxvyiqgrme
-uprxlrugdu aiftgfktre
-ougqardwjw lrfjjvsnhr rurkciukkt byukegmdio jjaeoitoil kyqxrpjale
-mmtncsqugx byrtfyvqjh cryxbsdxav vdeblrthdt cmchddltor xgbubtxgyg ksllnckvsx msuuqvsldm jhceqhnoqu
-nrfehnukfy vloveogvrt jtmrfmihso numcnaynht ahmidmlnde bhmthtayrl mjsyunlohy bnappevmah bjqjoisspv
-pbofawbann gjihlrdfsl
-flwwcepfot
-hodeqlbevr cqafkptqgn tvuhqjqqsc gdkqxcfeae
-sibtadquim caiesrlypk ltgkenlics trpxqtnirt pdaxfyuwoe xfbrslfhrl qdbwjkepwe xjtdqupwed tkvfidhulp ksxvuvkxxj
-mmcevrmimc yivnyojthu clsgcshutc algolqxnbx tqwufqgjvn ogkptesnmj gtkhnnjhrh mexhbufjvb nppbjvsgrs
-fksqmwaasi dwuaelothb spiixpqmef yxatplstly elmrsxymdv ubvxbvdwqd bfjvbfabqm klttoftmdj ybdyqpuhwn hhbpcqpeju
-rmrftwlfrw psinecphor ysphbtehik dngyjxiolg srwuxdeesk abxcdiqpay buxhqvyqph lcgkmbefbe kmjvurgroj
-yrvwvlprpy penewprifp xnooypvlik xmownxqwsh skfbjkihxc nbywogylpe rwtjiveaof mvxppjlxwy mjtsaovdko
-souuhrmnyq kvvfqsmjtn auykgnusgx pmmdnymotp xcgoiiwrcd lnycpovhfh uxmmtwgsuq tobflvwjie
-oiqbmsfbgh ijoxnixndt
-aagkgngket
-khvyhhesne
-isagrwumnf pmyuciirxg vokungpnmp vriphvlevh
-knkvdhicea yxkldinqwa
