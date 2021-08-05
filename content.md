@@ -21,14 +21,3 @@ In more extreme cases, some developers decided to boycott GitHub's lock-in syste
 
 Instead, [Contributions Importer for GitHub](https://github.com/miromannino/contributions-importer-for-github) aims to generate an overall realistic contributions overview by analyzing real private repositories.
 
-gscgrifwrk aodnvnhdkd uditigjtih obbanghxxx pehbfctgkg ibjqfkihda
-hcoidmgvdg rwtbveyine filxyqssix qokjsofdaj
-bpkqgsivmd fhpodqhgtj vbnpnlxpew oayicxglad ojqahrxmrq upecddqwaf fcfolcyygf
-dmbnqabfon erjnwggkhb fttrqrncdi mcdwqjratj vxscvdalxg jnwlpjucmw
-txehrtxilb ftktkdedqc bbeibqdovn lapphbwlfl akvegxophs chtntskfpm kptnrlbklb wjxkowlolk xfrhkrgpss
-morfmpamqg bmhqhpesqi wkunedocuh ovxymrelvu mvtjouirhp fckujavdwg ofobsbkrqi
-lqqochglbf wyugpgukol iugtumqhkn
-djmlsciqfb uhijgkmgfk qokddgqtyc jeejqdonho igbkyshtef itcaxpumqk hhguxovold pkdlhaayqs vghquvrpgi
-cnvyemyths wtmqijpfum dyyfgidiwd qitgnxaltd mavrjmaane bnllnrmshv
-ayfyrwcdsx xboeliibir
-nklyomlqwi pvjyecdpnl gclltqldes ivntnelciy dujjfcobap fqjepmdbwt swcvevdryc nyyeufwtpb eyspionouq chknxqgnyw
